@@ -1,1 +1,1 @@
-# CarlosR317.github.io
+# CarlosR317.github.io; I tried to make a portfolio, contact, and about me page. I really struggled on a lot of this but I was able to get some of it going. I know I am turning this in late but I though I already submitted it, I am sorry that this is late and imperfect. I am sorry but I have really been struggling with this coures in general 
